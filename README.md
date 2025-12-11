@@ -1,1 +1,0 @@
-# Ficha-para-3D-T-Victory
